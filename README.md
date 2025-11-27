@@ -1,3 +1,3 @@
 # Aplicaciones-Web-2SMR
-##Creado por Yaima
+## Creado por Yaima
 XD
